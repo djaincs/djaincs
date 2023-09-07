@@ -13,9 +13,9 @@
 
 - 📫 How to reach me **divyajain25083@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/folders/1lVrC6s2OX8pRNHL3_IdONKh7Xj-Q0jOo](https://drive.google.com/drive/u/0/folders/1lVrC6s2OX8pRNHL3_IdONKh7Xj-Q0jOo)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_0MH5In-Ie6AsiZ6Iin8wwybj19etank/view?usp=drive_link](https://drive.google.com/file/d/1_0MH5In-Ie6AsiZ6Iin8wwybj19etank/view?usp=drive_link)
 
-- ⚡ Hobbies **Painting,Dancing**
+- ⚡ Hobbies ** Painting, Dancing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
