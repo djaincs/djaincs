@@ -1,3 +1,5 @@
+![logo](https://github.com/djaincs/djaincs/blob/main/divya_banner.jpeg)
+
 <h1 align="center">Hi 👋, I'm Divya Jain</h1>
 <h3 align="center">Frontend Developer</h3>
 
